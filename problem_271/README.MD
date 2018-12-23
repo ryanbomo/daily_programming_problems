@@ -1,2 +1,0 @@
-# Daily Problem 
-## Problem Description
